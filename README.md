@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @afmartin2004
 - 😄 Pronouns: He/Him
+- Student at Dalhousie University
